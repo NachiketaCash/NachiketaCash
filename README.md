@@ -1,1 +1,1 @@
-F1ery#Sky&https://test-ind-api.fyinformation.ccSh@rp*Claw$
+moneymakerhttps://test-ind-api.fyinformation.cchomoclinal
