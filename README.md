@@ -1,1 +1,1 @@
-moneymakerhttps://test-ind-api.fyinformation.cchomoclinal
+moneymakerhttps://api.fhiactagikeadsnt.icuhomoclinal
